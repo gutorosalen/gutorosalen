@@ -25,9 +25,4 @@ try and learn my skills:  https://portifolioretro.netlify.app/
 -Everything starts to work out when you create the habit of believing that you are capable.
 -I say luck is when an opportunity arises and you are prepared for it.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on freelance
-
-
-<img src =>
